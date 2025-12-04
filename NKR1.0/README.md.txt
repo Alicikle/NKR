@@ -17,7 +17,7 @@
 
 СКАЧАТЬ ПРОГРАММУ:github.com/Alicikle/NKR
 
-
+ТГК: https://t.me/+txTHrzuTFZY3NjIy
 
 
 
@@ -35,3 +35,4 @@
 
 
 работает с сервисом zapret и General
+
